@@ -1,4 +1,4 @@
-# 
+# Get the ultimate KeePassXC for macOS extension with best KeePassXC for macOS Extension | phishing-detection + encryption. Featuring phishing-detection and encryption, it's the
 
 
 
